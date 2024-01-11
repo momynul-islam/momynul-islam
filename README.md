@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **islammomynul.cod@gmail.com**
 
-- ⚡ Fact **Learning something is so much easy but doing something is hard cause you have to try again many times.**
+- ⚡ **Love to learn new things and solving problems.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
